@@ -9,3 +9,5 @@ sal, cebola e temperos a gosto
 .	Em seguida coloque a mostarda e deixe refogar por mais alguns minutos.
 .	Coloque o molho de tomate e deixe apurar.
 .	Desligue o fogo e acrescente os 2 potes de iogurte. Mexa e sirva a seguir.
+
+Se caso não der certo, tenta de novo!
